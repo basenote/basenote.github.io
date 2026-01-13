@@ -1,1 +1,1 @@
-# emotionalobjs.github.com
+# 마음이 담긴 물건들
